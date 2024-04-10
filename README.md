@@ -1,2 +1,2 @@
 # Astronomy
-Astronomy related articles that will be published in fasesl Facebook page
+Astronomy-related articles that I write and will be published on fasesl Facebook page
